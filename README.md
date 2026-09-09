@@ -1,1 +1,1 @@
-# The-average-in-DeVos-s-ordered-label-conjecture
+# the-average-in-devos-ordered-label-conjecture
